@@ -54,7 +54,7 @@ While essential functionality is important consider these extra features to impr
 
 Are you ready to take the next step? Contact us today to find out more about our Practo clone script and how it can assist you in establishing a successful doctor appointment booking website.
 
-For more information:[ https://sangvish.com/practo-clone/](https://sangvish.com/practo-clone/)
+Click to see our Practo Clone's **LIVE DEMO** - [ https://sangvish.com/practo-clone/](https://sangvish.com/practo-clone/)
 
 **Book a Free Consultation via,**
 
